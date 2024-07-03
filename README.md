@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @Erick-network
+- 👋 Hi, I’m @Nobert-tech
 - 👀 I’m interested in ...photograph
 - 🌱 I’m currently learning ...about network
 - 💞️ I’m looking to collaborate on ... photos
 - 📫 How to reach me ...0653489011
-- 😄 Pronouns: ...
+- 😄 Pronouns: he...
 - ⚡ Fun fact: ...
 
 <!---
